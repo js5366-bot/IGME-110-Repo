@@ -20,4 +20,4 @@
 - https://www.rit.edu/
 - [RIT Home Page] (https://www.rit.edu/)
 ---
-![RIT Tigers](https://en.wikipedia.org/wiki/RIT_Tigers)
+![RIT Tigers](https://www.espn.com/mens-college-basketball/team/roster/_/id/178/rit-tigers)
