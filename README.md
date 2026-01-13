@@ -18,6 +18,7 @@
 ---
 ## Helpful Links
 - https://www.rit.edu/
-- [RIT Home Page] (https://www.rit.edu/)
+- [RIT Home Page](https://www.rit.edu/)
 ---
-![RIT Tigers](https://www.espn.com/mens-college-basketball/team/roster/_/id/178/rit-tigers)
+![RIT Tigers](RitTiger.png)
+
