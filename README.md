@@ -20,5 +20,5 @@
 - https://www.rit.edu/
 - [RIT Home Page](https://www.rit.edu/)
 ---
-![RIT Tigers](https://www.clipartmax.com/middle/m2H7Z5H7i8b1Z5m2_rit-tigers-mens-hockey-rit-tigers-logo/)
+![RIT Tigers](https://www.clipartmax.com/png/middle/361-3611623_rit-tigers-mens-hockey-rit-tigers-logo.png)
 
