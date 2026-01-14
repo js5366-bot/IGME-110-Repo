@@ -1,6 +1,6 @@
 # 🎮 Best Video Games I've Played 
 ---
-## 🧍 Single PLayer Games
+## 🧍 Single Player Games
 These are the best games I have played alone
 
 | Game | Why I Like It |
