@@ -22,7 +22,7 @@ These are the best games I have played with friends
 | ---- | ------------- |
 | [Call of Duty: Black Ops II](https://www.xbox.com/en-US/games/store/call-of-duty-black-ops-ii/C1QJM5XT9SXV) | A classic game, constantly play it with my brother and best friends when we are all together (best Zombies). |
 | [The Finals](https://www.reachthefinals.com) | A great shooter game — love the demolition and the variety of playstyles available. |
-| [Minecraft] (https://www.minecraft.net/en-us) | Another classic; I have spent a decent percentage of my life playing this game. I love exploring. |
+| [Minecraft](https://www.minecraft.net/en-us) | Another classic; I have spent a decent percentage of my life playing this game. I love exploring. |
 | [GTA 5 Online](https://www.rockstargames.com/gta-online) | Can be kind of grindy sometimes, but with the right people it’s the most fun game to mess around in. |
 | [Star Wars Battlefront II](https://www.xbox.com/en-US/play/games/star-wars-battlefront-ii/C0GWTPD0S8S1) | RIP. Can’t believe they quit working on this game — if it wasn’t so bad at launch it would’ve been a goldmine. |
 | [Garry’s Mod](https://gmod.facepunch.com) | This game had everything you could think of; spent hours mindlessly running around with random assets. |
