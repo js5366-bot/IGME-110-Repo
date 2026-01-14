@@ -8,7 +8,7 @@ These are the best games I have played alone
 | [Marvel Spider-Man](https://www.playstation.com/en-us/games/marvels-spider-man/)   | Amazing story and open world, got 100% in two days |
 | [Hogwarts Legacy](https://www.hogwartslegacy.com/en-us)     | Huge fan of harry potter so I loved  this game, great open world and a fun story | 
 | [Stardew Valley](https://www.stardewvalley.net)     | Played this with mods most of the time, a very relaxing game to pass the time with | 
-| [Dispatch](https://www.playstation.com/en-us/games/dispatch/)            | Really fun and unique game, loved the different story outcomes. Spared shroud both play throughs | 
+| [Dispatch](https://www.playstation.com/en-us/games/dispatch/)            | Really fun and unique game, loved the different story outcomes. Spared shroud both playthroughs | 
 | [Red Dead Redemption 2](https://www.rockstargames.com/reddeadredemption2) | First really big open world game I completed, loved the western setting and the emotional story | 
 | [Before Your Eyes](https://www.beforeyoureyesgame.com) | The most I have cried while playing a game, changed how I veiw the world and how I spend my time | 
 | [Project Zomboid](https://projectzomboid.com/blog/) | Painfully realistic zombie survival that took many tutorials to finally understand but extreamly worth it |
